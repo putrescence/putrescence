@@ -1,4 +1,4 @@
-incredibly ‎  ‎  girlbrained  ‎  ‎ tfem   ‎  ‎ fujohime   ‎  ‎  girls int.    ‎  ‎ anyone int.   ‎  ‎ pls.
+incredibly ‎  ‎  girlbrained  ‎  ‎ tfem   ‎  ‎ fujohime   ‎  ‎  girls int.    ‎  ‎ anyone int.   ‎  ‎ pls.     ‎ c +  h too.
  ![](https://media1.tenor.com/m/FX1-BchkvLMAAAAC/faust-the-one-who-grips.gif)
  ![](https://media1.tenor.com/m/ZUcj_Xb9kP8AAAAC/faust-limbus-company.gif)
 
