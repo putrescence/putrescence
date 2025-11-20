@@ -30,6 +30,6 @@
 
 
 ‎<p align="center">
-*would* you like it if I told you i **loved** you? (´ ∀ ` *)
+*would* ‎ ‎  you ‎ ‎  like ‎ ‎  it ‎ ‎  if ‎ ‎  I ‎ ‎  told ‎ ‎  you ‎ ‎  i ‎ ‎  **loved** ‎ ‎  you? ‎ ‎  (´ ∀ ` *)
 </p>
 
