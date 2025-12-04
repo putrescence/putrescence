@@ -12,7 +12,7 @@ untainted by complacent lives undone
 
 <div align="center">
 
-[**r**entry](https://rentry.co/shtwitter) ‎‎ ‎ ‎  ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎  [**a**ta](https://hihiin.atabook.org) ‎ ‎‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎ ‎ ‎ ‎   [**i**nterests](https://rentry.co/ideska)
+[**r**entry](https://rentry.co/nyanachi) ‎‎ ‎ ‎  ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎  [**a**ta](https://hihiin.atabook.org) ‎ ‎‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎ ‎ ‎ ‎   [**i**nterests](https://rentry.co/ideska)
 
 </div>
 <div align="center">
