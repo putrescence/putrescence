@@ -1,13 +1,13 @@
 </div>
 <div align="center">
-toxic yuri nuke , angels in my garden
+toxic yuri nuke 
 </div>‎ ‎ ‎‎ 
 
 
 </div>‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎  ‎ 
 
 <p align="center">
-    <img width="400" src="https://files.catbox.moe/70v7f1.png">
+    <img width="100" src="https://64.media.tumblr.com/2e449c261708462e307615ca620b3ffd/fc75a6917c840456-3c/s100x200/a2c8322ba04ed34b641ed9ac59400af4cb2d9aa2.pnj">
 </p>
 
 <div align="center">
