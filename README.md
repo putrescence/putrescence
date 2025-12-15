@@ -7,12 +7,12 @@ toxic yuri nuke
 </div>‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎  ‎ 
 
 <p align="center">
-    <img width="100" src="https://64.media.tumblr.com/2e449c261708462e307615ca620b3ffd/fc75a6917c840456-3c/s100x200/a2c8322ba04ed34b641ed9ac59400af4cb2d9aa2.pnj">
+<img width="100" src="https://64.media.tumblr.com/14498264c9f2760d52016de5d0b44500/928bfea77df22d55-16/s100x200/c6472dba2e4afcd74010fb18528e5801432c11b1.gifv">
 </p>
 
 <div align="center">
 
-‎ ‎  ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎  [**a**ta](https://necrosis.atabook.org) ‎ ‎‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎ ‎[**r**entry](https://rentry.co/deathlists) ‎ ‎‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎ ‎[**l**isto](https://listography.com/3408421752) ‎ ‎   ‎ ‎  
+[**a**ta](https://necrosis.atabook.org) ‎ ‎‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎ ‎[**r**entry](https://rentry.co/deathlists) ‎ ‎‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎ ‎[**l**isto](https://listography.com/3408421752) ‎ ‎   ‎ ‎  
 
 </div>
 <div align="center">
