@@ -15,7 +15,7 @@
 
 <div align="center">
 
-[**a**ta](https://necrosis.atabook.org) ‎ ‎‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎ ‎[**l**isto](https://listography.com/3408421752) ‎ ‎‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎ [**s**traw](https://nyotalias.straw.page)
+[**a**tabook](https://necrosis.atabook.org) ‎ ‎‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎ ‎[**l**isto](https://listography.com/3408421752) ‎ ‎‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎ [**s**traw](https://nyotalias.straw.page)
 
 </div>
 <div align="center">
