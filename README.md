@@ -16,7 +16,7 @@
 
 <div align="center">
 
-[rentry](https://rentry.co/xoly) ‎ ‎‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎ [ata](https://necrosis.atabook.org) ‎ ‎‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎ ‎[listo](https://listography.com/3408421752) ‎ ‎‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎ ‎[do ur clicks](https://arab.org)
+[rentry](https://rentry.co/xoly) ‎ ‎‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎ [atabook](https://necrosis.atabook.org) ‎ ‎‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎ ‎[clicks](https://arab.org)
 
 </div>
 <div align="center">
