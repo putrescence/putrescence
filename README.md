@@ -8,7 +8,6 @@
 
 <div align="center">
 
-[1](https://rentry.co/xoly) ‎ ‎‎ ‎ ‎ ‎‎ [2](https://necrosis.atabook.org) ‎ ‎‎  ‎ ‎‎ ‎[3](https://arab.org)
 
 </div>
 
