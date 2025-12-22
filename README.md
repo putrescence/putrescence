@@ -15,7 +15,7 @@
 
 <div align="center">
 
-[**r**entry](https://rentry.co/xoly) ‎ ‎‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎ [**a**tabook](https://necrosis.atabook.org) ‎ ‎‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎ ‎[**l**isto](https://listography.com/3408421752) ‎ ‎‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎ [**s**traw](https://nyotalias.straw.page) ‎ ‎‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎ ‎[**l**uvmail](https://rentry.co/togetherbound)
+[**r**entry](https://rentry.co/xoly) ‎ ‎‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎ [**a**tabook](https://necrosis.atabook.org) ‎ ‎‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎ ‎[**l**isto](https://listography.com/3408421752) ‎ ‎‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎ [**s**traw](https://nyotalias.straw.page) ‎ ‎‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎ ‎[**c**licks](https://arab.org)
 
 </div>
 <div align="center">
