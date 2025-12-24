@@ -21,7 +21,7 @@
 </div>
 <div align="center">
  
-![](https://komarev.com/ghpvc/?username=putrescence&color=E9B473&style=plastic&label=yuri+soldiers)
+![](https://komarev.com/ghpvc/?username=putrescence&color=E9B473&style=for-the-badge&label=yuri+soldiers)
 
 </div>‎ ‎ ‎‎ 
 </div>‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎
