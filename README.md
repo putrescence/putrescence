@@ -1,7 +1,7 @@
 
 <div align="center">
  
- ‎ ‎  ‎  ‎ ‎   ‎ ‎  ‎  ‎ ‎  ‎ ‎ ‎‎[![Alt Text for Image](https://files.catbox.moe/4vri6v.png)](https://rentry.co/gomi)
+ ‎ ‎  ‎  ‎ ‎   ‎ ‎  ‎  ‎ ‎  ‎ ‎ ‎‎[![Alt Text for Image](https://files.catbox.moe/det31h.png)](https://rentry.co/gomi)
  
 </div>
 
