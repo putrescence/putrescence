@@ -35,6 +35,6 @@
 
 <div align="center">
 
-![](https://files.catbox.moe/nwcxi9.gif)
- 
+<a href="https://ibb.co/nqKt50JM"><img src="https://i.ibb.co/nqKt50JM/tumblr-55fe68574168d45a3cadb330b95140b8-1a2f3d5b-400-ezgif-com-effects.gif" alt="tumblr-55fe68574168d45a3cadb330b95140b8-1a2f3d5b-400-ezgif-com-effects" border="0"></a>
+
 </div>
