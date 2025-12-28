@@ -29,7 +29,7 @@
 
 <div align="center">
  
-[![Alt Text for Image](https://files.catbox.moe/1d1sbc.png)](https://hikikomori.atabook.org)
+[![Alt Text for Image](https://files.catbox.moe/1d1sbc.png)](https://suncest.atabook.org)
  
 </div>‎
 
