@@ -35,6 +35,6 @@
 
 <div align="center">
 
-![](https://files.catbox.moe/rk85gl.gif)
+![](https://files.catbox.moe/nwcxi9.gif)
  
 </div>
