@@ -30,20 +30,5 @@
 [![Alt Text for Image](https://files.catbox.moe/0r2nbf.png)](https://rentry.co/gomi)
  
 </div>
-‎ ‎  ‎  
-‎ ‎  ‎  
-‎ ‎  ‎  
-‎ ‎  ‎  
-‎ ‎  ‎  
-‎ ‎  ‎  
-‎ ‎  ‎  
-‎ ‎  ‎  
+‎
 
-‎ ‎  ‎  
-‎ ‎  ‎  
-‎ ‎  ‎  
-‎ ‎  ‎  
-‎ ‎  ‎  
-‎ ‎  ‎  
-‎ ‎  ‎  
-‎ ‎  ‎  
