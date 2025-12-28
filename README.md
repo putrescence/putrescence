@@ -38,3 +38,9 @@
 <a href="https://ibb.co/nqKt50JM"><img src="https://i.ibb.co/nqKt50JM/tumblr-55fe68574168d45a3cadb330b95140b8-1a2f3d5b-400-ezgif-com-effects.gif" alt="tumblr-55fe68574168d45a3cadb330b95140b8-1a2f3d5b-400-ezgif-com-effects" border="0"></a>
 
 </div>
+
+<div align="center">
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Special+Elite&duration=3000&pause=1000&color=F7F7F7&center=true&repeat=false&width=435&lines=and+the+angels+who+did+not+keep+their+own+;domain+but+abandoned+their+proper+abode;he+has+kept+in+eternal+bonds+under+;darkness+for+the+judgment+of+the+great+day)](https://git.io/typing-svg)
+
+</div>
