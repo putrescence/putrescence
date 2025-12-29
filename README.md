@@ -23,13 +23,7 @@
 ‎
 <div align="center">
  
-[![Alt Text for Image](https://files.catbox.moe/mgzvwi.png)](https://rentry.co/sunwe)
- 
-</div>
-
-<div align="center">
- 
-[![Alt Text for Image](https://files.catbox.moe/1d1sbc.png)](https://yaoied.atabook.org)
+[![Alt Text for Image](https://files.catbox.moe/ki36qi.png)](https://rentry.co/sunwe) [![Alt Text for Image](https://files.catbox.moe/rws03w.png)](https://yaoied.atabook.org)
  
 </div>‎
 
