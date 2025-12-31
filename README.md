@@ -17,7 +17,7 @@
 </div>
 <div align="center">
  
-![](https://komarev.com/ghpvc/?username=putrescence&color=514D97&style=for-the-badge&label=yuri+soldiers)
+![](https://komarev.com/ghpvc/?username=putrescence&color=3896ED&style=for-the-badge&label=yuri+soldiers)
 
 </div>‎ ‎ ‎‎ 
 ‎
