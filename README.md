@@ -2,7 +2,7 @@
 
 <div align="center">
 
-<img src="https://files.catbox.moe/9tupt7.png" width="600" />
+<img src="https://files.catbox.moe/80kpyw.png" width="300" />
  
 </div>
 
@@ -17,7 +17,7 @@
 </div>
 <div align="center">
  
-![](https://komarev.com/ghpvc/?username=putrescence&color=CBE3CD&style=for-the-badge&label=yuri+soldiers)
+![](https://komarev.com/ghpvc/?username=putrescence&color=F6D3AB&style=for-the-badge&label=yuri+soldiers)
 
 </div>‎ ‎ ‎‎ 
 ‎
