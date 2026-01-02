@@ -26,7 +26,7 @@
 </div>
 <div align="center">
  
-![](https://komarev.com/ghpvc/?username=CHIYUNAE&color=E49A53&style=plastic&label=⠀) 
+![](https://komarev.com/ghpvc/?username=CHIYUNAE&color=E49A53&style=plastic&label=⚣) 
 
 
 
