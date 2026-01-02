@@ -5,7 +5,7 @@
 ‎ 
 ‎ <div align="right">
 
-‎ ‎ [‎1](https://rentry.co/ukecel) ‎ ‎ ‎ [2](https://yaoied.atabook.org)‎ ‎ ‎ 
+‎ ‎ [‎💢](https://rentry.co/ukecel) ‎ ‎ ‎ [🦊](https://yaoied.atabook.org)‎ ‎ ‎ 
  
 </div>
 
