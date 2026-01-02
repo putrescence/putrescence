@@ -5,7 +5,7 @@
 ‎ 
 ‎ <div align="center">
 
-‎ ‎ [ntry](rentry.co/ukecel) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [ata](yaoied.atabook.org)‎ ‎ ‎ 
+‎ ‎ [1](rentry.co/ukecel) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [2](yaoied.atabook.org)‎ ‎ ‎ 
  
 </div>
 
