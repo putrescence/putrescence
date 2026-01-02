@@ -3,9 +3,9 @@
 ‎ ‎
 ‎ 
 ‎ 
-‎ <div align="center">
+‎ <div align="left">
 
-‎ ‎ [‎ꫂ᭪݁](rentry.co/ukecel) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [⚣](yaoied.atabook.org)‎ ‎ ‎ 
+‎ ‎ [‎ꫂ᭪݁](rentry.co/ukecel) ‎ ‎ ‎ [⚣](yaoied.atabook.org)‎ ‎ ‎ 
  
 </div>
 
