@@ -10,7 +10,7 @@
 
 <div align="center">
 
-<img src="https://files.catbox.moe/isou0c.png" width="300" />
+<img src="https://files.catbox.moe/q13itr.png" width="200" />
  
 </div>
 
@@ -26,7 +26,7 @@
 </div>
 <div align="center">
  
-![](https://komarev.com/ghpvc/?username=CHIYUNAE&color=000000&style=for-the-badge&label=⚣) 
+![](https://komarev.com/ghpvc/?username=CHIYUNAE&color=60DBC3&style=for-the-badge&label=⚣) 
 
 
 
